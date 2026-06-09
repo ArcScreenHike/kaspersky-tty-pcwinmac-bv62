@@ -1,4 +1,4 @@
-# 
+# احترافي Kaspersky Total Security سكريبتات لـ Mac OS | توربو Kaspersky Total Security سكريبتات لـ PC Windows. مع المشاركة الآمنة و تكامل API — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
